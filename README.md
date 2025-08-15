@@ -1,4 +1,4 @@
-# Clash订阅机场 | 8月15日21M/S|免费SSR/Clash/V2ray/Shadowrocket节点推荐，在线Clash机场梯子购买推荐  更新时间 2025-08-15 15:21:22
+# Clash订阅机场 | 8月15日19.6M/S|免费V2ray/Clash/SSR/Shadowrocket节点推荐，在线Clash机场梯子购买推荐  更新时间 2025-08-15 15:28:17
 所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://clashdoor.github.io" target="_blank">点击跳转</a>
 
 ## clash使用教程：
